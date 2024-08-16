@@ -11,6 +11,6 @@ Este exemplo, eu utilizei neste [Repósitorio!](https://github.com/Caio-bitLins/
 
 ![image](https://github.com/user-attachments/assets/19631397-e949-4792-ad33-55c166230924)
 
-# Obrigado por ler até aqui <3
+# Obrigado por ler até aqui! <3
 <img src="https://media.tenor.com/qVKlQMB2DpsAAAAM/hacker-hacking.gif" width="230"></h2>
 
